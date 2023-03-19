@@ -1,4 +1,11 @@
-Click [HERE](https://let-def.github.io/insydious) to run the unlocker.
+Click [HERE](https://vaginessa.github.io/insydious-bios-pw/) to run the unlocker.
+---
+
+
+https://vaginessa.github.io/insydious-bios-pw/
+
+---
+
 
 # Story
 
